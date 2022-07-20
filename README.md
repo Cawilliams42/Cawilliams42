@@ -4,6 +4,8 @@
 - 💞️ I’m looking to collaborate on ... Federal/Gov't Contract Opportunities
 - 📫 How to reach me ... Christopher.a.williams86@gmail.com
 
+Examples of shareable work below!
+
 <!---
 Cawilliams42/Cawilliams42 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
